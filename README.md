@@ -1,2 +1,2 @@
-# TI Belajar 
+# TI Belajar (Versi Nama Klompok) 
 Adinda Stievanny
